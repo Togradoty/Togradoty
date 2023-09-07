@@ -1,7 +1,7 @@
 # Hey, I'm Tyler Smith!
 
-I'm a 14 year old learning many languages
+I'm 14
 
-I also do roblox stuff as bananaman0008 if anyone ever finds this
+I do roblox stuff as bananaman0008 if anyone ever finds this
 
 
